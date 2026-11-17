@@ -95,7 +95,6 @@ I am particularly interested in:
 ## Connect with me
 
 - **GitHub:** [https://github.com/ERASTE-BUTELA](https://github.com/ERASTE-BUTELA)
-- **LinkedIn:** [Soon]
 
 ---
 
